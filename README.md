@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Mars!
+- 👀 I’m interested in Psychology, writing and sketching.
+- 🌱 I’m currently learning more about different psychological terms.
